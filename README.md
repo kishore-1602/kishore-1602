@@ -33,8 +33,6 @@ LinkedIn: Kishore R
 
 GitHub: You're already here 😉
 
-Email: (You can add your email here if you want)
-
 😄 Fun Facts
 
 I love technology as much as I love sports 🏏
